@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Hello there, I am Naman Chauhan but I am best known as techmirtz on internet!
